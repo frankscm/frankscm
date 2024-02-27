@@ -1,6 +1,6 @@
 - 👋 Hi, I’m leonard
 - 👀 I’m interested in my company?
-- 🌱 I’m currently learning instagram.com
+- 🌱 I’m currently learning bread
 - 💞️ I’m looking to collaborate on instagram.com
 - 📫 How to reach me fsc
 - 😄 Pronouns: he
